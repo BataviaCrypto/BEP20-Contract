@@ -14,7 +14,7 @@ The BTV Token will be created in order to be distributed to all over the world. 
 
 ### How to purchase and view
 
-[Access our website and click on I want to participate.](https://forsagedoge.com/)
+[Access our website and click on I want to participate.](https://bataviacrypto.com/)
 Questions or Suggestions?
 
 Get in touch and let's talk.
